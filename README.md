@@ -7,7 +7,7 @@
 
 ![Image](https://github.com/user-attachments/assets/4f07a488-6cf8-4feb-a0ca-d03da1c3cbd2)
  
-cr; pariseffingzz
+cr; pariseffingzz and skkycasino
 ## <p align="center">
 <p align="center"> online status meaning: 
 
