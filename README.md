@@ -4,7 +4,9 @@
     
 ![Profile view counter](https://komarev.com/ghpvc/?username=your-github-beast-dazai&label=visitors)
   
-<img width="1600" height="1200" alt="Image" src="https://github.com/user-attachments/assets/28fdd0db-08a8-4760-b494-fb163433ac99" />
+![Image](https://github.com/user-attachments/assets/17cb77cf-0af5-46a5-b032-f4eb12529214)
+
+artist: Lim_Do_Ki
 
 
 ## <p align="center">
