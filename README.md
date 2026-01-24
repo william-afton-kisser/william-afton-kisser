@@ -4,7 +4,7 @@
     
 ![Profile view counter](https://komarev.com/ghpvc/?username=your-github-beast-dazai&label=visitors)
   
-![Image](https://github.com/user-attachments/assets/17cb77cf-0af5-46a5-b032-f4eb12529214)
+![Image](https://github.com/user-attachments/assets/53c78d3f-52cb-4442-9e5a-1f0cb7b32e50)
 
 artist: Lim_Do_Ki
 
